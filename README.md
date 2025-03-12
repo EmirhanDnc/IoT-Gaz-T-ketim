@@ -1,1 +1,0 @@
-# IoT-Gaz-T-ketim
